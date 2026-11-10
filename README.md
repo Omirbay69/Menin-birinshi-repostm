@@ -1,0 +1,2 @@
+# Menin-birinshi-repostm
+MENING GIT HUBDAGI BIRINCHI LOYIHAM
